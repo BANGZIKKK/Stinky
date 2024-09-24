@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **C language programming**
 
-- 📫 How to reach me **bacodmoonton@gmail.com**
+- 📫 How to reach me **muhammadzikribungo2019@gmail.com**
 
 - ⚡ Fun fact **I am very good at playing mobile legends**
 
